@@ -5,6 +5,7 @@
 - 400g Chicken
 - 2 Tbsp Mayonnaise
 - 0.5 Leek
+- Some water
 
 
 
